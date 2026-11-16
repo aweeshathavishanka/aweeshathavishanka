@@ -1,4 +1,4 @@
-# Aweesha Thavishanka
+# Aweesha Wijesundara
 
 **Product Engineer & AI/ML Researcher**
 
